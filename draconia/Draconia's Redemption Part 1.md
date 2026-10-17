@@ -10,7 +10,6 @@ Disclaimer: This is a fanfic story. Harry Potter belongs to J.K. Rowling.
 
 ---
 
-
 The Dark Lord stopped on the lawn before the castle. Behind him, Death Eaters spread across the grass in a ragged half-circle. Before them, Hagrid stood crying, with the boy in his arms. Beyond the group loomed the castle, its towers damaged, smoke drifted lazily from its windows. It looked like a great beast, hunted all night, now finally panting its last breaths.
 
 The great oak doors swung open.
@@ -51,7 +50,7 @@ She had watched her for seven years. The letters home that were all *Potter, Pot
 
 She had been sure. Of course she had been sure.
 
-Seven years of calling it hate and weaving a lie so tight she could never slip out of it. However many years of making sure the boy never knew the truth. She had done it so well. And now, she realized, he would never know.
+Seven years of calling it hate and weaving a lie so tight she could never slip out of it. And years, she could not tell how many, of making sure the boy never knew the truth. She had done it so well. And now, she realized, he would never know.
 
 "Oh," Narcissa breathed. "Oh, my darling."
 
