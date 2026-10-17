@@ -1,3 +1,7 @@
+Disclaimer: This is a fanfic story. Harry Potter belongs to J.K. Rowling.
+
+---
+
 # Draconia's Redemption
 
 ### At the Battle of Hogwarts
