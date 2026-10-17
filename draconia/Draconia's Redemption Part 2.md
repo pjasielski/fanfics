@@ -6,6 +6,8 @@ Disclaimer: This is a fanfic story. Harry Potter belongs to J.K. Rowling.
 
 ### At the Battle of Hogwarts
 
+#### Part 2: The Storm
+
 ---
 
 Bellatrix Lestrange fell, and the Great Hall held its breath.
@@ -118,7 +120,7 @@ Voldemort walked towards her across the wet floor, unhurried, stood over her, an
 
 Harry heard it. Everyone heard it.
 
-A memory surfaced in Harry's mind. The Mirror of Erised, Christmas of their fourth year. He remembered the her voice saying she could only see the two of them.. He had thought she was mocking him.
+A memory surfaced in Harry's mind. The Mirror of Erised, and her voice saying all she could see in it was the two of them. He had thought she was mocking him.
 
 He remembered a bathroom floor a year ago, her blood in the water, and her whisper asking whether he hated her that much. He had thought it was the pain talking.
 
