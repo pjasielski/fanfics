@@ -66,7 +66,7 @@ Narcissa was no longer the only one observing. The Granger girl had turned from 
 
 "Draconia."
 
-Lucius, standing at her side. His voice was low, urgent, trembling with fear.
+Lucius' voice was low, urgent and trembling with fear.
 
 Draconia did not lift her head.
 
@@ -88,4 +88,4 @@ Three words. That was all it would take. *He is alive.* Three words, and her dau
 
 So she said nothing. It was harder than lying to the Dark Lord. It was the hardest thing she had ever done — standing there, keeping silent, and watching her child break her heart over a boy who was still alive.
 
-*Wait, my darling,* she thought, drawing on the last ounce of strength she had left. *Only wait.*
+*Wait, my darling,* she thought. *Only wait.*
