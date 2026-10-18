@@ -72,9 +72,7 @@ Draconia did not lift her head.
 
 "DRACONIA!"
 
-Heads turned on both sides of the lawn. It was the voice their daughter had run to all her life.
-
-She did not move. Narcissa saw now that she had not even heard. She had fallen somewhere beyond the reach of any voice.
+Heads turned on both sides of the lawn. Draconia had run to that voice all her life. But now, she did not move. Narcissa saw now that she had not even heard. She had fallen somewhere beyond the reach of any voice.
 
 The Dark Lord's eyes moved from the kneeling girl to Lucius. His mouth curved into a cruel sneer.
 
