@@ -14,7 +14,7 @@ The Dark Lord stopped on the lawn before the castle. Behind him, Death Eaters sp
 
 The great oak doors swung open.
 
-Those who remained, came out onto the wide stone steps in the grey light. Filthy, wounded, holding each other up, and far too young. Narcissa's eyes went from face to face, searching, quickly and hungrily. Past the teachers. Past all the children she barely knew.
+Those who remained came out onto the wide stone steps in the grey light. Filthy, wounded, holding each other up, and far too young. Narcissa's eyes went from face to face, searching, quickly and hungrily. Past the teachers. Past all the children she barely knew.
 
 And then — *There*. At the foot of the steps, standing slightly apart from the others. Alive.
 
@@ -58,7 +58,7 @@ Nobody heard her.
 
 Across the lawn, Minerva McGonagall had turned her head. Narcissa knew what she saw — the Malfoy girl on her knees, the same girl who had sneered at Harry Potter for seven years in McGonagall's own corridors. McGonagall's mouth, still shaking, opened a little, and shut again. Then she looked away, quickly, the way one turns away from a letter addressed to someone else.
 
-Draconia did not look up. She bent further now, slowly, as though a heavy weight were pressing down on her spine, until her face was close to the ground and her pale hair spilled across it. The stone was covered in grit, shards of glass and wood splinters from the broken windows above, her hands lay spread on it. Narcissa watched her daughter's fingers close on that rubble, and tighten, clenching so hard she drew blood, as if letting go would make her fall off the edge of the world.
+Draconia did not look up. She bent further now, slowly, as though a heavy weight were pressing down on her spine, until her face was close to the ground and her pale hair spilled across it. The stone was covered in grit, shards of glass and wood splinters from the broken windows above, and her hands lay spread on it. Narcissa watched her daughter's fingers close on that rubble, and tighten, clenching so hard she drew blood, as if letting go would make her fall off the edge of the world.
 
 Her tears fell straight from her eyes onto the grey stone and made small dark marks there, one, and another, and another, like the first drops of rain before a storm.
 
