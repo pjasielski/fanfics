@@ -50,7 +50,7 @@ She had watched her for seven years. The letters home that were all *Potter, Pot
 
 She had been sure. Of course she had been sure.
 
-Seven years of calling it hate and weaving a lie so tight she could never slip out of it. And years, she could not tell how many, of making sure the boy never knew the truth. She had done it so well. And now, she realized, he would never know.
+Seven years of calling it hate and weaving a lie so tight she could never slip out of it. And years, Narcissa could not tell how many, of making sure the boy never knew the truth. She had done it so well. And now, she realized, he would never know.
 
 "Oh," Narcissa breathed. "Oh, my darling."
 
