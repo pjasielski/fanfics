@@ -14,7 +14,7 @@ Bellatrix Lestrange fell, and the Great Hall held its breath.
 
 She lay where Molly Weasley's curse had dropped her, her heavy black hair spread across the stone, her eyes wide with a surprise that would never leave them now.
 
-Voldemort's scream tore through the silence. McGonagall, Kingsley and Slughorn, who had been fighting him, were blasted away like ragdolls. Harry, invisible beneath the Cloak, watched him raise his wand on the small, red-haired witch who had just taken the life of his most faithful servant. He rushed forward and lifted his wand. The Shield Charm was on his lips—
+Voldemort's scream tore through the silence. McGonagall, Kingsley and Slughorn, who had been fighting him, were blasted away like ragdolls. Harry, invisible beneath the Cloak, watched him raise his wand at the small, red-haired witch who had just taken the life of his most faithful servant. He rushed forward and lifted his wand. The Shield Charm was on his lips—
 
 —and something in the Hall changed.
 
@@ -58,7 +58,7 @@ Nobody could fight in that. Nobody tried. The whole Hall went down, Death Eaters
 
 It was not a spell. It was older than spells: a primal magic, unleashed by primal emotions.
 
-For one heartbeat Voldemort's shield held. Harry saw it bend; he saw fractures spreading across the surface, like ice breaking under a boot.  The force lifted the Dark Lord off his feet and threw him down onto his back on the floor of the Great Hall.
+For one heartbeat Voldemort's shield held. Harry saw it bend; he saw fractures spreading across the surface, like ice breaking under a boot. The force lifted the Dark Lord off his feet and threw him down onto his back on the floor of the Great Hall.
 
 The lightning began to circle. It caught two Death Eaters rushing to aid their master and swept them away like dry leaves. They lay senseless in the puddles. The storm formed a crackling ring of light in the center of the Hall, a cage with only two inmates — the girl standing firm, and the Dark Lord on the floor, fighting for his life. Bolt after bolt crashed against his shield as he lay there, and he held it up with the Elder Wand gripped in both hands.
 
@@ -72,7 +72,7 @@ Molly Weasley was staring at the girl, and Harry saw the shock on her face turn 
 
 Ron was on his knees, staring with his mouth hanging open. Beside him, Hermione had both hands pressed over her mouth, crying, but not just for Harry now.
 
-Professor McGonagall was rising up slowly. Her lips were pressed into a thin, hard line, she was witnessing a transmutation of the highest order, way above the physical plane that she taught. For the first time in her life, she wanted to shout *"A thousand points to Slytherin!"* If only the tragedy wasn't so absolute.
+Professor McGonagall was rising up slowly. Her lips were pressed into a thin, hard line. She was witnessing a transmutation of the highest order, way above the physical plane that she taught. For the first time in her life, she wanted to shout *"A thousand points to Slytherin!"* If only the tragedy weren't so absolute.
 
 Lucius Malfoy stood with his empty hands half-raised, staring at his daughter as though he had never seen her before. And perhaps he never had.
 
@@ -100,7 +100,7 @@ Voldemort simply waited, as one waits for a fire to burn itself out.
 
 And it did.
 
-With a flick of his wrist — small, almost lazy — the spell cut through the last of her storm like a knife through butter. It caught her cracked wand first snapping it. The blast behind it hurled her backwards. She hit the floor and slid across the wet stone.
+With a flick of his wrist — small, almost lazy — the spell cut through the last of her storm like a knife through butter. It caught her cracked wand first and snapped it. The blast behind it hurled her backwards. She hit the floor and slid across the wet stone.
 
 The last of the lightning died out. Above them, the clouds came apart and drained away, and the ceiling was only a ceiling again, grey with the coming morning. The rain thinned, and stopped.
 
@@ -108,7 +108,7 @@ Draconia tried to push herself up on her elbows, but her limbs gave way.
 
 "Draconia," Voldemort said. His cold voice reached every corner of the Hall. "Lucius's daughter."
 
-She coughed blood. Last of the strength deserted her. She lay motionless, defeated, barely conscious, and yet, Harry could see no fear in her tired eyes. She was prepared to die. And she didn't care.
+She coughed blood. The last of her strength deserted her. She lay motionless, defeated, barely conscious, and yet, Harry could see no fear in her tired eyes. She was prepared to die. And she didn't care.
 
 Voldemort tilted his head, studying her.
 
@@ -128,7 +128,7 @@ He remembered her arms around him tonight, on the broom, while escaping the fire
 
 An hour ago, in Snape's memories, he had watched a fifteen-year-old girl insist that she felt nothing at all, and he had convinced himself it was long ago, fake and over.
 
-So on the grounds, where Hargid laid his body, when he watched her fall to her knees, he didn’t think anything. He knew. It was not over.
+So on the grounds, where Hagrid laid his body, when he watched her fall to her knees, he didn't think anything. He knew. It was not over.
 
 It had been growing all this time in the dark, the way roots grow beneath stone, and now the stone had broken.
 
