@@ -10,9 +10,7 @@ Disclaimer: This is a fanfic story. Harry Potter belongs to J.K. Rowling.
 
 ---
 
-
-
-The Dark Lord stopped on the lawn before the castle. Behind him, Death Eaters spread across the grass in a ragged half-circle. Before them, Hagrid stood crying, with the boy in his arms. Beyond the group loomed the castle, its towers damaged, smoke drifted lazily from its windows. It looked like a great beast, hunted all night, now finally panting its last breaths.
+The Dark Lord stopped on the lawn before the castle. Behind him, Death Eaters spread across the grass in a ragged half-circle. Before them, Hagrid stood crying, with the boy in his arms. Beyond the group loomed the castle, its towers damaged. Smoke drifted lazily from its windows and cracks. It looked like a great beast, hunted all night, now finally panting its last breaths.
 
 The great oak doors swung open.
 
