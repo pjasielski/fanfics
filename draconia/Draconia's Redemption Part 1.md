@@ -11,6 +11,7 @@ Disclaimer: This is a fanfic story. Harry Potter belongs to J.K. Rowling.
 ---
 
 
+
 The Dark Lord stopped on the lawn before the castle. Behind him, Death Eaters spread across the grass in a ragged half-circle. Before them, Hagrid stood crying, with the boy in his arms. Beyond the group loomed the castle, its towers damaged, smoke drifted lazily from its windows. It looked like a great beast, hunted all night, now finally panting its last breaths.
 
 The great oak doors swung open.
@@ -47,7 +48,7 @@ It was then that Narcissa understood. And she wished with all her heart that she
 
 Narcissa gasped and her hand went to her mouth.
 
-She had watched her for seven years. The letters home that were all *Potter, Potter, Potter*. The newspaper cutting from the winter of the Yule Ball, Rita Skeeter's gossip about Harry Potter and the Malfoy heiress, a story Draconia had sworn she burned, but which Narcissa had found later folded tightly at the back of a drawer. The night they had dragged the boy into the Manor with his face swollen and unrecognizable. Her daughter had looked at him and said, *I can't be sure.*
+She had watched her for seven years. The letters home that were all *Potter, Potter, Potter*. The newspaper cutting from the Tournament, Rita Skeeter's gossip about Harry Potter and the Malfoy heiress: first the Yule Ball, then the lake. A story Draconia had sworn she burned, but which Narcissa had found later folded tightly at the back of a drawer. The night they had dragged the boy into the Manor with his face swollen and unrecognizable. Her daughter had looked at him and said, *I can't be sure.*
 
 She had been sure. Of course she had been sure.
 
