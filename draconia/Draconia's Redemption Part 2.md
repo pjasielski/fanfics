@@ -28,7 +28,7 @@ Voldemort turned away from Molly Weasley, seeking the source.
 
 So did Harry.
 
-All around him chaos reigned in the Great Hall. Many people still running, ducking, duelling, falling, spells flying in every direction. And through the middle of it, walked a single figure.
+All around him chaos reigned in the Great Hall. Many people still running, ducking, duelling, falling, spells flying in every direction. And through the middle of it walked a single figure.
 
 Draconia Malfoy.
 
@@ -60,7 +60,7 @@ It was not a spell. It was older than spells: a primal magic, unleashed by prima
 
 For one heartbeat Voldemort's shield held. Harry saw it bend; he saw fractures spreading across the surface, like ice breaking under a boot.  The force lifted the Dark Lord off his feet and threw him down onto his back on the floor of the Great Hall.
 
-The lightning began to circle. It caught two Death Eaters rushing to aid their master it and swept them away like dry leaves. They lay senseless in the puddles. The storm formed a crackling ring of light in the center of the Hall, a cage with only two inmates — the girl standing firm, and the Dark Lord on the floor, fighting for his life. Bolt after bolt crashed against his shield as he lay there, and he held it up with the Elder Wand gripped in both hands.
+The lightning began to circle. It caught two Death Eaters rushing to aid their master and swept them away like dry leaves. They lay senseless in the puddles. The storm formed a crackling ring of light in the center of the Hall, a cage with only two inmates — the girl standing firm, and the Dark Lord on the floor, fighting for his life. Bolt after bolt crashed against his shield as he lay there, and he held it up with the Elder Wand gripped in both hands.
 
 Nobody was fighting anymore. Attackers and defenders lay side by side in the rain, staring up at the same terrifying spectacle. For that moment they were not two armies. They were only spectators, watching something none of them believed was possible.
 
@@ -70,7 +70,7 @@ Harry could not move. He could only watch.
 
 Molly Weasley was staring at the girl, and Harry saw the shock on her face turn slowly into something else. Understanding. Only one thing could tear that kind of power out of a witch. Molly had found it in herself just a minute ago. But Molly had never had to hide hers. This had been hidden for years, chained, held down and called by every name but its own, and now it was loose, all of it, at once.
 
-Ron was on his knees, staring with his mouth hung open. Beside him, Hermione had both hands pressed over her mouth, crying, but not just for Harry now.
+Ron was on his knees, staring with his mouth hanging open. Beside him, Hermione had both hands pressed over her mouth, crying, but not just for Harry now.
 
 Professor McGonagall was rising up slowly. Her lips were pressed into a thin, hard line, she was witnessing a transmutation of the highest order, way above the physical plane that she taught. For the first time in her life, she wanted to shout *"A thousand points to Slytherin!"* If only the tragedy wasn't so absolute.
 
@@ -108,9 +108,9 @@ Draconia tried to push herself up on her elbows, but her limbs gave way.
 
 "Draconia," Voldemort said. His cold voice reached every corner of the Hall. "Lucius's daughter."
 
-She coughed blood. Last of the strength deserted her. She lay motionless, defeated, barely conscious, and yet, Harry could see lack of fear in her tired eyes. She was prepared to die. And she didn't care.
+She coughed blood. Last of the strength deserted her. She lay motionless, defeated, barely conscious, and yet, Harry could see no fear in her tired eyes. She was prepared to die. And she didn't care.
 
-He tilted his head, studying her.
+Voldemort tilted his head, studying her.
 
 "Last year I gave you one old man to kill, and your hand shook. And now…" He spread his arms, revealing the devastation around them. "…all this."
 
@@ -128,7 +128,7 @@ He remembered her arms around him tonight, on the broom, while escaping the fire
 
 An hour ago, in Snape's memories, he had watched a fifteen-year-old girl insist that she felt nothing at all, and he had convinced himself it was long ago, fake and over.
 
-So on the grounds, where Hargid lay his body, when he watched her fall to her knees, he didn’t think anything. He knew. It was not over.
+So on the grounds, where Hargid laid his body, when he watched her fall to her knees, he didn’t think anything. He knew. It was not over.
 
 It had been growing all this time in the dark, the way roots grow beneath stone, and now the stone had broken.
 
@@ -146,7 +146,7 @@ The Shield Charm burst open in the dead center of the Great Hall, a barrier of l
 
 For one heartbeat the whole Hall was utterly silent.
 
-"Still disappointing?" Harry asked Voldemort to his face.
+"Still disappointing?" said Harry.
 
 The Hall erupted.
 
